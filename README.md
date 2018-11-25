@@ -1,0 +1,2 @@
+# Jurnal-EJASA
+Panduan Publikasi
